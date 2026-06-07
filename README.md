@@ -48,4 +48,3 @@ I am a public health professional and Master of Public Health (Monitoring and Ev
 
 Email: mjelle431@gmail.com
 
-LinkedIn: your-linkedin-profile
